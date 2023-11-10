@@ -1,1 +1,1 @@
-# Group-project---Application-in-Mixed-Reality
+Transformers group - Sterling Glasheen, Rishi Ganesh, Ankita, Carissa Trieu, Connor K
